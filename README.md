@@ -57,5 +57,6 @@
 >- [🔗Server](https://discord.gg/jgtYzaT4jy)
 >- [🔗Telegram](https://t.me/EclipseDiscord)
 >- [🔗QiWi](https://www.qiwi.com/n/THEARTEMII)
+>- [😈JKcrashers](https://discord.gg/dVJGYFCzsE)
 
 ![](https://media.discordapp.net/attachments/853327561551249428/946849156998246400/IMG_20220218_212426_688.jpg)
